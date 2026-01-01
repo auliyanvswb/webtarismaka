@@ -1,2 +1,0 @@
-# webtarismaka
-smakatari keren banget
